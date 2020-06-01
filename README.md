@@ -18,7 +18,6 @@ sửa của thiên
  
  sửa lần thứ 3
 
-sửa của vĩnh
 
 
 aaaaa
@@ -26,4 +25,5 @@ aaaaa
 ''
 
 
+những con mùa đông hai đứa mình hun nhau máy lạnh thì  bật 20cc
 những con mùa đông hai đứa mình hun nhau máy lạnh thì  bật 20cc
